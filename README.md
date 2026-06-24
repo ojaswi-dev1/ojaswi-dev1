@@ -1,6 +1,6 @@
 ## 🌸 About Me
 
-🌷 Hi, I'm Ojaswi!
+🐦‍🔥 Hi, I'm Ojaswi!
 
 🎓 CSE Student | 💻 Developer | 🤖 AI Enthusiast
 
